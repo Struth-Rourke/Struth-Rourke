@@ -6,6 +6,6 @@
 - 📫 How to reach me: 
     - Email: Struthers.Rourke@gmail.com 
     - LinkedIn: https://www.linkedin.com/in/rourkestruthers/
-    - Twitter: '@__Rourke__'
+    - Twitter: @__ Rourke __
 - ⚡ Fun fact: I founded and lead a startup for a couple months when I was in college in the fashion and clothing space.
 
